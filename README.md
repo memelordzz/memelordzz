@@ -2,7 +2,7 @@
   <img src="https://i.pinimg.com/originals/a9/a9/f3/a9a9f3f358ccdc952e8df26116d636d6.gif" width="500" alt="epiccross...aahhhh">
 </p>
 <p align="center">
-  ︶ <a href="https://pronouns.cc/@voidroidz">prns(wip</a> 𖥔
+  ︶ <a href="https://en.pronouns.page/@voidroidz">prns</a> 𖥔
   <a href="https://voidroidz.atabook.org/">atabook</a> 𖥔
   <a href="https://epicsblog.straw.page/">strwpg</a> 𖥔
   <a href="https://www.instagram.com/voidroids?igsh=MTh5bXY5d2Zya3hncg==">instgrm</a> ︶ ⊹
