@@ -1,6 +1,9 @@
 <p align="center">
-  <img src="https://i.pinimg.com/originals/a9/a9/f3/a9a9f3f358ccdc952e8df26116d636d6.gif" width="500" alt="epiccross...aahhhh">
+  <img src="https://pbs.twimg.com/media/Gw4VCd6aUAAGJqn?format=jpg&name=large" width="500" alt="spamntennamm..">
 </p>
+<p align="center">
+    © _officialspec on twt
+  </p>
 <p align="center">
   ︶ <a href="https://en.pronouns.page/@voidroidz">prns</a> 𖥔
   <a href="https://voidroidz.atabook.org/">atabook</a> 𖥔
