@@ -5,7 +5,6 @@
   </p>
   </p>
 <p align="center">
-
 </p>
 <p>
   <p align="center">
@@ -20,10 +19,9 @@
 </p>
 <p>
   <p align="center">
-    𝘉𝝤ꔋ𝘏 𝗦𝖠𝗙𝗘 𝗦𝗘𝙍𝗩𝗘𝙍𝗦 / Ⲥ+𝘏 / 𝘞𝟤𐌉𝖭ꔋ
+    𝐛𝐨𝐭𝐡 𝐬𝐚𝐟𝐞 𝐬𝐞𝐫𝐯𝐞𝐫𝐬 / 𝐂+𝐇 / 𝐖𝟐𝐈
   </p>
-
 <div align="center">
   
-![Image](https://media.tenor.com/x-ug-OzMcioAAAAi/tenna-deltarune.gif)
+  ![Image](https://media.tenor.com/x-ug-OzMcioAAAAi/tenna-deltarune.gif)
 <div align="center">
