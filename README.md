@@ -1,8 +1,16 @@
-<p align="center">
-  <img src="https://pbs.twimg.com/media/Gw4VCd6aUAAGJqn?format=jpg&name=large" width="500" alt="spamntennamm..">
 </p>
+<p>
+  <p align="center">
+<img width="99" height="56" alt="Image" src="https://media.tenor.com/Eu3tNtgbeK0AAAAi/spamtenna-spamton.gif" /> <img width="99" height="56" alt="Image" src="https://media.tenor.com/Eu3tNtgbeK0AAAAi/spamtenna-spamton.gif" /> <img width="99" height="56" alt="Image" src="https://media.tenor.com/Eu3tNtgbeK0AAAAi/spamtenna-spamton.gif" /> <img width="99" height="56" alt="Image" src="https://media.tenor.com/Eu3tNtgbeK0AAAAi/spamtenna-spamton.gif" /> <img width="99" height="56" alt="Image" src="https://media.tenor.com/Eu3tNtgbeK0AAAAi/spamtenna-spamton.gif" /> <img width="99" height="56" alt="Image" src="https://media.tenor.com/Eu3tNtgbeK0AAAAi/spamtenna-spamton.gif" /> <img width="99" height="56" alt="Image" src="https://media.tenor.com/Eu3tNtgbeK0AAAAi/spamtenna-spamton.gif" /> <img width="99" height="56" alt="Image" src="https://media.tenor.com/Eu3tNtgbeK0AAAAi/spamtenna-spamton.gif" />
+  </p>
+  </p>
 <p align="center">
-    © _officialspec on twt
+
+</p>
+<p>
+  <p align="center">
+    tenna / epic 𝗙𝗜𝗖𝗧𝗞𝗜𝗡
+  </p>
   </p>
 <p align="center">
   ︶ <a href="https://en.pronouns.page/@voidroidz">prns</a> 𖥔
@@ -12,5 +20,10 @@
 </p>
 <p>
   <p align="center">
-    𝗌𝗉𝖺𝗇𝗂𝗌𝗁 / 𝗌𝖺𝖿𝖾 𝗌𝖾𝗋𝗏𝖾𝗋... 𝖢+𝖧 ! 𝖶𝟤𝖨
+    𝘉𝝤ꔋ𝘏 𝗦𝖠𝗙𝗘 𝗦𝗘𝙍𝗩𝗘𝙍𝗦 / Ⲥ+𝘏 / 𝘞𝟤𐌉𝖭ꔋ
   </p>
+
+<div align="center">
+  
+![Image](https://media.tenor.com/x-ug-OzMcioAAAAi/tenna-deltarune.gif)
+<div align="center">
